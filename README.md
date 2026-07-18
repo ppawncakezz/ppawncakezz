@@ -30,4 +30,20 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 
 ![image alt](https://media.tenor.com/bU2ecVVuTCAAAAA1/gyaru-hello-kitty.webp)
 
-wip wip heheh
+oomfies
+
+@Cosmicalwaves
+
+@W1ND4RCH3RC00K13
+
+@kyleekazz
+
+@cherriiaxo
+
+@slepttena
+
+
+![image alt](https://media.tenor.com/943oQSKGGvgAAAA1/black-piano.webp )
+
+
+𖤐₊˚༄ᵗᑋᵃᐢᵏ ᵞᵒᵘ ᵕ̈𖤐₊˚༄
