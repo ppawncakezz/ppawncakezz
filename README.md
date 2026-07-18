@@ -8,7 +8,10 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 
 ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
-𓈒⠀pancake lover 𓏸 ⠀she/they or any⠀𓇼
+𓈒⠀pancake lover 𓏸 
+⠀she/they or any⠀𓇼
+
+ᝰ.ᐟ˚⋆𐙚｡⋆𖦹.✧
 
 ୨୧ㅤִㅤׄ  𝘪𝘸𝘦𝘤𝘶𝘧. 
 
