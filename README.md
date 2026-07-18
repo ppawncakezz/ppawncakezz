@@ -2,7 +2,7 @@
 𝙥𝙖𝙬𝙣𝙘𝙖𝙠e
 
 
-![image alt](https://pin.it/4EtHBDD5k )
+![image alt](https://media.tenor.com/7O7rNgvGvLEAAAA1/marshmallow-bunny-cookie-marshmallow-bunny.webp)
 
 yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
@@ -13,9 +13,9 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 
 ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
-![image alt](https://tenor.com/view/blinkies-gif-2683044012866520323 )
+![image alt](https://media.tenor.com/JTwWUHelxQMAAAAm/blinkies.webp)
 
-![image alt](https://tenor.com/view/about-me-graphic-profile-blinkie-blinkies-gif-5925323323236180059)
+![image alt](https://media.tenor.com/Ujr6KzTUYFsAAAAm/about-me-graphic.webp)
 
 🥞ᵎᵎ‹𝟹 ∿✦ I'm a pancake lover, and a cat person.
 
@@ -24,6 +24,6 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 🥞ᵎᵎ‹𝟹 ∿✦ yes, I play crk, roblox, pony town, and Pokémon unite.
 
 
-![image alt](https://tenor.com/view/gyaru-gif-17281405513874776709)
+![image alt](https://media.tenor.com/bU2ecVVuTCAAAAA1/gyaru-hello-kitty.webp)
 
 wip wip heheh
