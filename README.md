@@ -23,7 +23,7 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 
 🥞ᵎᵎ‹𝟹 ∿✦ I'm a pancake lover, and a cat person.
 
-🥞ᵎᵎ‹𝟹 ∿✦ yes, iam fourteen.
+🥞ᵎᵎ‹𝟹 ∿✦ yes, iam fifteen.
 
 🥞ᵎᵎ‹𝟹 ∿✦ yes, I play crk, roblox, pony town, and Pokémon unite.
 
