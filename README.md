@@ -52,7 +52,7 @@ oomfies
 
 
 I'll add more I swear
-![image alt](https://media.tenor.com/VZPYDnEOTbcAAAAm/meikoiu-miku.webp )
+![image alt](https://media.tenor.com/XvM2GBuJ4xwAAAA1/bunny-bunny-kiss.webp)
 
 
 ![image alt](https://camo.githubusercontent.com/58085848604cb6adaaaf65a78d29d21d8f9766bc1562513e6452fbf1ae7da90f/68747470733a2f2f63646e2e646973636f72646170702e636f6d2f6174746163686d656e74732f313532333935303132303135393135343236362f313532353735313332393335343431363235312f556e7469746c65645f3334355f3230323630373132313432365f35353334302e706e673f65783d36613534383632382669733d366135333334613826686d3d3732326664653130663865313064616632323766303536313739346461626133303530383939653164656661353664333134656533393063373164333638653126 )
@@ -65,3 +65,8 @@ I'll add more I swear
 ![image alt](https://media.tenor.com/gMhTese4d94AAAAm/flowers.webp )
 
 ![image alt](https://media.tenor.com/yW13c5mTQ9oAAAAm/png-marshmallows.webp ) ![image alt](https://media.tenor.com/3LmQljCGjdUAAAAm/missing-you-love-you.webp )
+
+𝗯𝘂𝗻𝗻𝘆 𝗯𝘂𝗻𝗻𝘆 𝗯𝘂𝗻𝗻𝘆 𝗯𝘂𝗻𝗻𝘆 
+
+    (\ (\ 
+c(◠(_˶• ༝ •˶)_
