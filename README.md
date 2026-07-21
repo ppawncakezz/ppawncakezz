@@ -62,6 +62,7 @@ I'll add more I swear
 ![image alt](https://media.tenor.com/fxUVFIwu2i4AAAAM/pink-blinkie.gif )
 ![image alt](https://media.tenor.com/8XpHDILyia4AAAAM/love-blinkies.gif )
 ![image alt](https://media.tenor.com/J6nfZhWmL1QAAAAM/ilovecats-cats.gif )
+![image alt](https://media.tenor.com/EFr-PaXukRkAAAA1/blinkie-blue.webp)
 
 ![image alt](https://media.tenor.com/RC42OtG4L6MAAAAm/marshmallow-bunny-cookie-cookie-run.webp)
 ![image alt](https://media.tenor.com/gMhTese4d94AAAAm/flowers.webp )
