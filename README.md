@@ -44,7 +44,7 @@ oomfies
 
 @slepttena
 
-@c-utesy
+@https://github.com/c-utesy 
 
 @s1llyjester
 
