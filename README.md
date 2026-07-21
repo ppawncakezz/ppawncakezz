@@ -34,19 +34,19 @@ yekita/pancake/𝗽𝗮𝘄𝗻𝗰𝗮𝗸𝗲
 
 oomfies
 
-@Cosmicalwaves
+@https://github.com/Cosmicalwaves 
 
-@W1ND4RCH3RC00K13
+@https://github.com/W1ND4RCH3RC00K13 
 
-@kyleekazz
+@https://github.com/kyleekazz
 
-@cherriiaxo
+@https://github.com/cherriiaxo 
 
-@slepttena
+@https://github.com/slepttena 
 
 @https://github.com/c-utesy 
 
-@s1llyjester
+@https://github.com/s1llyjester 
 
 ![image alt](https://media.tenor.com/943oQSKGGvgAAAA1/black-piano.webp )
 
