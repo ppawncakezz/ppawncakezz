@@ -51,7 +51,7 @@ oomfies
 ![image alt](https://media.tenor.com/943oQSKGGvgAAAA1/black-piano.webp )
 
 
-𖤐₊˚༄ᵗᑋᵃᐢᵏ ᵞᵒᵘ ᵕ̈𖤐₊˚༄
+I'll add more I swear
 ![image alt](https://media.tenor.com/VZPYDnEOTbcAAAAm/meikoiu-miku.webp )
 
 
@@ -60,3 +60,5 @@ oomfies
 ![image alt](https://media.tenor.com/fxUVFIwu2i4AAAAM/pink-blinkie.gif )
 ![image alt](https://media.tenor.com/8XpHDILyia4AAAAM/love-blinkies.gif )
 ![image alt](https://media.tenor.com/J6nfZhWmL1QAAAAM/ilovecats-cats.gif )
+
+![image alt](https://media.tenor.com/RC42OtG4L6MAAAAm/marshmallow-bunny-cookie-cookie-run.webp)
