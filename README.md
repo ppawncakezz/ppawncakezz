@@ -52,7 +52,9 @@ oomfies
 ![image alt](https://media.tenor.com/943oQSKGGvgAAAA1/black-piano.webp )
 
 
-"mother always told me, be careful what you do, don't go around making young girls cry" -michael jackson,𝒃𝒊𝒍𝒍𝒊𝒆 𝒋𝒆𝒂𝒏
+"mother always told me, be careful what you do, don't go around making young girls cry" 
+
+-michael jackson,𝒃𝒊𝒍𝒍𝒊𝒆 𝒋𝒆𝒂𝒏
 ![image alt](https://media.tenor.com/XvM2GBuJ4xwAAAA1/bunny-bunny-kiss.webp)
 
 
