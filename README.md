@@ -1,4 +1,5 @@
 # ⏔⏔⏔⏔ ꒰ ♡ྀི ꒱ ⏔⏔⏔⏔
+![image alt](https://media.tenor.com/KYu10bTX7JUAAAAm/cute-divider.webp )
 
 ![image alt](https://media.tenor.com/vveBkjRxEjwAAAAm/divider-stars.webp )
 
@@ -38,3 +39,27 @@ https://github.com/s1llyjester
 ![image alt](https://media.tenor.com/tC3mZYm7jC4AAAAm/berry-strawberry.webp)
 
 aand mooree!!
+
+![image alt](https://media.tenor.com/ANT376kd1WoAAAA1/%D0%B3%D0%B8%D1%84%D1%82%D0%BE%D0%BC%D0%B0%D1%82%D0%BC%D0%B1-divider.webp )
+
+## dni...
+
+### ˘꒷꒦˘꒷꒦꒷˘꒦꒷꒦˘꒦˘꒷꒦꒷˘꒦꒷꒦˘
+
+18+ or 10- (iwec/thin ice/dniuf)
+
+maps/zoos
+
+pedos
+
+proshippers/darkshippers (dniuf)
+
+rude at first
+
+jokes about suicide/SA/SH.
+
+
+![image alt](https://media.tenor.com/h4T3NzFCuRsAAAA1/internet-pink.webp )
+
+
+### <kbd>[**ᴀᴛᴀʙᴏᴏᴋ**](https://https://pancakesandpastries.atabook.org/.com)</kbd>
