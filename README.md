@@ -22,19 +22,21 @@
 
 ![image alt](https://media.tenor.com/Mnnf0otBw0wAAAAM/internet-friends-online-friends.gif)
 
-https://github.com/Cosmicalwaves
+# <kbd>[**@CosmicalWaves**](https://github.com/Cosmicalwaves)</kbd>
 
-https://github.com/cherriiaxo
+# <kbd>[**@cherriiaxo**](https://github.com/cherriiaxo)</kbd>
 
-https://github.com/slepttena
+# <kbd>[**@slepttena**](https://github.com/slepttena)</kbd>
 
-https://github.com/W1ND4RCH3RC00K13
+# <kbd>[**@W1ND4RCH3RC00K13**](https://github.com/W1ND4RCH3RC00K13)</kbd>
 
-https://github.com/kyleekazz
 
-https://github.com/c-utesy
+# <kbd>[**@kyleekazz**](https://github.com/kyleekazz)</kbd>
 
-https://github.com/s1llyjester 
+# <kbd>[**@c-utesy**](https://github.com/c-utesy)</kbd>
+
+# <kbd>[**@s1llyjester**](https://github.com/s1llyjester)</kbd>
+
 
 ![image alt](https://media.tenor.com/tC3mZYm7jC4AAAAm/berry-strawberry.webp)
 
