@@ -1,20 +1,3 @@
-　　　 　　／＞　　フ
+![image alt](https://media.tenor.com/PbHJ0cSoWuIAAAAm/гифтоматмб-divider.webp)
 
-　　　 　　| 　_　 _ l
-
-　 　　 　／` ミ＿xノ
-
-　　 　 /　　　 　 |
-
-　　　 /　 ヽ　　 ﾉ
-
-　 　 │　　|　|　|
-
-　／￣|　　 |　|　|
-
-　| (￣ヽ＿_ヽ_)__)
-
-　   二つ
-
-![image alt](https://media.tenor.com/Ok2UzRtMWfkAAAAM/pink-dividers.gif)
-![image alt](https://media.tenor.com/Ok2UzRtMWfkAAAAM/pink-dividers.gif)
+![](https://media.tenor.com/Ok2UzRtMWfkAAAAM/pink-dividers.gif|width=150)
