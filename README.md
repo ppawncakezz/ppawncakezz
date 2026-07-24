@@ -60,6 +60,8 @@ rude at first
 
 jokes about suicide/SA/SH.
 
+epstein/trump/ICE supporters
+
 
 ![image alt](https://media.tenor.com/h4T3NzFCuRsAAAA1/internet-pink.webp )
 
