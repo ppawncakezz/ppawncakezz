@@ -64,6 +64,7 @@ jokes about suicide/SA/SH.
 ![image alt](https://media.tenor.com/h4T3NzFCuRsAAAA1/internet-pink.webp )
 
 
-## <kbd>[**atabook**](https://pancakesandpastries.atabook.org/)</kbd>
+## <kbd>[**atabook⏜♡**](https://pancakesandpastries.atabook.org/)</kbd>
+## <kbd>[**strawpage⏜♡**](https://pancakessyay.straw.page )</kbd>
 
 
