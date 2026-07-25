@@ -72,7 +72,7 @@ epstein/trump/ICE supporters
 
 ![image alt](https://media.tenor.com/Pd3srNuK_HgAAAAm/stars-divider.webp)
 
-## <kbd>[**strawpage⏜♡**](https://pancakessyay.straw.page )</kbd>
+## <kbd>[**strawpage⏜♡ (remake in progress**]()</kbd>
 
 ![image alt](https://media.tenor.com/Pd3srNuK_HgAAAAm/stars-divider.webp) 
 
