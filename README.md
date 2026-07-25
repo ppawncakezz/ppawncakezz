@@ -72,6 +72,9 @@ epstein/trump/ICE supporters
 
 ## <kbd>[**strawpage⏜♡**](https://pancakessyay.straw.page )</kbd>
 
+## <kbd>[**spotify⏜♡**](https://open.spotify.com/user/31eeacnnc3a6i4zwmb3cw22v2dau?si=HJSBJR7IRN-D5OAhTE5y2Q&utm_source=copy-link&pi=3wRdhXoqT2CAZ)</kbd>
+
+
 ![image alt](https://media.tenor.com/g_JSGA2xa9UAAAA1/bekind-discord.webp)
 ![image alt](https://media.tenor.com/rWD8Gndz3K8AAAA1/shoes-divider.webp)
 
