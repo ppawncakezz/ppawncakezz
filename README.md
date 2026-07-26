@@ -1,4 +1,4 @@
-![image alt](https://www.textstudio.com/text-animation-generator?giphyProxy&url=https%3A%2F%2Ftext.media.giphy.com%2Fv1%2Fmedia%2Fgiphy.gif%3Ftoken%3DeyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJrZXkiOiJwcm9kLTIwMjAtMDQtMjIiLCJzdHlsZSI6InJhbnNvbSIsInRleHQiOiJPaCUyQyUyMFdoYXQlMjBhJTIwY3Vyc2UlMjBpdCUyMGlzJTIwdG8lMjBiZSUyMHRoZSUyMGxvdmVyJTIwZ2lybCEiLCJwYWxldHRlIjoiNiwwLDIsNCwxLDAsMiwwLDIsMiwwLDMsMywxLDAsMCw1LDAsMCwwLDMsNiwwLDAsMSw1LDEsMCwwLDAsNiwyLDAsMiIsImlhdCI6MTc4NTA0NDI0OH0.Sr0zX6xRVLNzssj1XyWMe60Qels_iQzE9b9VEe5Av8E)
+
 
 # ⏔⏔⏔⏔ ꒰ ♡ྀི ꒱ ⏔⏔⏔⏔
 ![image alt](https://media.tenor.com/KYu10bTX7JUAAAAm/cute-divider.webp )
