@@ -1,4 +1,9 @@
-
+![image alt](https://media.tenor.com/B4yLBrTq2fEAAAAM/gyaru-blinkie.gif )
+![image alt](https://media.tenor.com/ZjX7vWJcGAcAAAAM/blinkie-blinkies.gif)
+![image alt](https://media.tenor.com/ByIksVOsQDkAAAAM/blinkie-blinkies.gif)
+![image alt](https://media.tenor.com/gfsXneGFefoAAAAM/pink-blinkie.gif)
+![image alt](https://media.tenor.com/2Yu5aos4J84AAAAM/blinkie-blinkies.gif)
+![image alt](https://media.tenor.com/asFPqDEr9i8AAAAM/i-love-my-gf-blinkie.gif)
 
 # ⏔⏔⏔⏔ ꒰ ♡ྀི ꒱ ⏔⏔⏔⏔
 ![image alt](https://media.tenor.com/KYu10bTX7JUAAAAm/cute-divider.webp )
