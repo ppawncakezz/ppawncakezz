@@ -14,7 +14,7 @@
 ![image alt](https://media.tenor.com/asFPqDEr9i8AAAAM/i-love-my-gf-blinkie.gif)
 
 
-![image alt](https://cdn.discordapp.com/attachments/1482008592650342442/1531273945515298816/Screenshot_20260727_201540.jpg?ex=6a689d7e&is=6a674bfe&hm=c0bc637ab04b5b2eb38744457bf648dc3d5b0952e6602f413c01548c7c383bf1& =100x100)
+![](https://cdn.discordapp.com/attachments/1482008592650342442/1531273945515298816/Screenshot_20260727_201540.jpg?ex=6a689d7e&is=6a674bfe&hm=c0bc637ab04b5b2eb38744457bf648dc3d5b0952e6602f413c01548c7c383bf1& =100x100)
 
 # ⏔⏔⏔⏔ ꒰ ♡ྀི ꒱ ⏔⏔⏔⏔
 ![image alt](https://media.tenor.com/KYu10bTX7JUAAAAm/cute-divider.webp )
