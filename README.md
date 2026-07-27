@@ -8,7 +8,6 @@
 ![image alt](https://media.tenor.com/2Yu5aos4J84AAAAM/blinkie-blinkies.gif)
 ![image alt](https://media.tenor.com/asFPqDEr9i8AAAAM/i-love-my-gf-blinkie.gif)
 
-## pony town's marshmallow bunny cookie♡
 
 ![image alt](https://cdn.discordapp.com/attachments/1482008592650342442/1531273945515298816/Screenshot_20260727_201540.jpg?ex=6a689d7e&is=6a674bfe&hm=c0bc637ab04b5b2eb38744457bf648dc3d5b0952e6602f413c01548c7c383bf1& )
 
