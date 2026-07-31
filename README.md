@@ -24,7 +24,7 @@
 ![image alt](https://8upload.com/image/e83c98c271c22607/IMG_9736.gif)
 
 
-## <kbd>[**strawpage**](https://pancakemallows.straw.page)</kbd>
+## <kbd>[**strawpage**](https://pancakemallowsmobile.straw.page )</kbd>
 ![image alt](https://8upload.com/image/e83c98c271c22607/IMG_9736.gif )
 
 ## <kbd>[**atabook**](https://pancakesandpastries.atabook.org/)</kbd>
