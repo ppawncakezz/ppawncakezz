@@ -7,3 +7,5 @@
 ### <kbd>[**𝘢𝘵𝘢𝘣𝘰𝘰𝘬⋆.✮**](https://pancakesandpastries.atabook.org/)</kbd>
 
   #   𑣲
+
+![image alt](https://media.tenor.com/xc1Hs0VzGvsAAAAm/blue-divider.webp )
