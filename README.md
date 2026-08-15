@@ -1,3 +1,5 @@
+![image alt](https://cdn.discordapp.com/attachments/1535207032754536458/1538091935103979540/Untitled103_20260815154758.png?ex=6a816b3d&is=6a8019bd&hm=cf6719131a0248ab41e10a3c3b752d1fceb702ba5d43d77fabfb7feadf27bd0f& )
+
 ![image alt](https://media.tenor.com/6XBKSmjpMUYAAAA1/cat-divider.webp)
 
 ![image alt](https://media.tenor.com/KGcqXRQarswAAAAi/goodbye-hello.gif)
