@@ -2,7 +2,7 @@
 
 ![image alt](https://media.tenor.com/6XBKSmjpMUYAAAA1/cat-divider.webp)
 
-![image alt](https://media.tenor.com/KGcqXRQarswAAAAi/goodbye-hello.gif)
+![image alt](https://cdn.discordapp.com/attachments/1535207032754536458/1538482991112658974/lv_0_20260816174155.jpg?ex=6a82d770&is=6a8185f0&hm=a0de239a329279f33f0156d5e86e7aeaf55efd64a618df37f8fd8ff02fbf9cee& )
 
    #### ʜᴇʏ, ʏᴏᴜ! ʏᴇᴀʜ, ʏᴏᴜ ᴛʜᴇʀᴇ! ɪ'ᴍ ᴛᴀʟᴋɪɴɢ ᴛᴏ ʏᴏᴜ! sɪɢɴ ᴍʏ ᴀᴛᴀ! 
 
