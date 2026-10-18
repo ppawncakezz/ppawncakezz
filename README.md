@@ -1,3 +1,5 @@
-![image alt](https://media1.tenor.com/m/htEMyPwbdiYAAAAC/chiikawa-hackiware.gif )
+![image alt](https://cdn.discordapp.com/attachments/1523950120159154266/1561267614108483644/ezgif-75c9c55d54a77155.gif?ex=6ad5bb46&is=6ad469c6&hm=59025433e4b791074a8c1d945d58bd5860d611781b6417256cbd72f03d5f12c9& )
 
-![image alt](https://cutekawaiiresources.wordpress.com/wp-content/uploads/2014/08/2.gif )
+![image alt](https://cdn.discordapp.com/attachments/1523950120159154266/1561267614108483644/ezgif-75c9c55d54a77155.gif?ex=6ad5bb46&is=6ad469c6&hm=59025433e4b791074a8c1d945d58bd5860d611781b6417256cbd72f03d5f12c9&)
+
+# ꒰ঌ Yekita ໒꒱
